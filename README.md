@@ -1,7 +1,8 @@
 ## [FREE] EMOTE MENU LIKE NOPIXEL 4.0
 
 ## 👀 Preview
-https://www.youtube.com/watch?v=3DiEscQLX5Y
+
+https://youtu.be/3DiEscQLX5Y
 
 # NOTED
 
